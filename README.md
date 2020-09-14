@@ -1,7 +1,7 @@
 # 萤火虫最新下载地址（2020年9月14日更新）
-### [yhc11.app](http://yhc11.app)
-### [yhc22.app](http://yhc22.app)
-### 主播版下载地址 [yhc11.app/yhc_v4.2.2.apk](http://www.yhc11.app/yhc_v4.2.2.apk)<br> （观众下载无法使用）
+### [yhc11.app](https://www.yhc11.app)
+### [yhc22.app](https://www.yhc22.app)
+### 主播版下载地址 [yhc11.app/yhc_v4.2.2.apk](https://www.yhc11.app/yhc_v4.2.2.apk)<br> （观众下载无法使用）
 备用观众版下载地址如下<br> 
 yhc11.com<br>  
 yhc22.com<br>  
