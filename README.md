@@ -1,4 +1,4 @@
-# 萤火虫永久回家带测速地址（2020年9月18日更新）
+# 萤火虫永久回家带测速地址（2020年9月20日更新）
 #### [yc01.live](https://www.yc01.live)
 #### [yc02.live](https://www.yc02.live)
 #### [yc03.live](https://www.yc03.live)
