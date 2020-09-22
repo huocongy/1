@@ -10,7 +10,7 @@
 ### [yhc33.app](https://www.yhc33.app)
 ### 主播版下载地址 [yhc11.app/yhc_v4.2.2.apk](https://www.yhc11.app/yhc_v4.2.2.apk)<br>（观众下载无法使用）
 备用观众版下载地址如下<br>
-yhc11.app<br>  
+yhc11.app<br>↓  
 yhc22.app<br>  
 yhc33.app<br>````  
 
